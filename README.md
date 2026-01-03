@@ -22,8 +22,11 @@ Flickering Screens: Usually caused by a hardware fault in the display panel.
 Conveniently Located for All Aucklanders
 Whether you are in East Auckland, South Auckland, or the CBD, our service center is easily accessible. We pride ourselves on being the go-to "repair shop near me" for the local community.
 
+
 📍 Visit Us at our Auckland Store: Express Gadget Repair Address: 2/739 Chapel Road, Dannemora, Auckland 2016 Phone: 022 545 0003 or 09 390 0006 Open 7 Days a Week!
 
 Check out our website for a free quote or to book your repair: 👉 https://gadgetrepair.co.nz/
 
 Don't let a broken screen devalue your premium phone. Bring it to the experts at Express Gadget Repair and see why we are rated 5 stars for quality and service in Auckland.
+![Best Samsung Galaxy S24 Ultra Screen Replacement in Auckland – Express Gadget Repair 📱💎](https://github.com/user-attachments/assets/e3932bb0-7564-46d8-84fd-1ee48229f144)
+
